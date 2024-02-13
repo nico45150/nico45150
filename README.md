@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on twitter
 - 📫 How to reach me now
-- 😄 Pronouns: ...
+- 😄 Pronouns: poulet
 - ⚡ Fun fact: i love burger and chips
 
 <!---
