@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @nico45150 hheeh
 - 👀 I’m interested in chiken cusined
 - 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on twitter
+- 💞️ I’m looking to collaborate on twitter and insta
 - 📫 How to reach me now
 - 😄 Pronouns: poulet ma
 - ⚡ Fun fact: i love burger and chips
