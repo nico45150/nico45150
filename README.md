@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @nico45150 hheeh
+- 👋 Hi, I’m @nico45150 , im student
 - 👀 I’m interested in chiken cusined
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on twitter and insta
