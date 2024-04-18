@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @nico45150 , im student
-- 👀 I’m interested in chiken cusined poulmaf
+- 👀 I’m interested in chiken cusined poulmaf;,:
 - 🌱 I’m currently learning ,;,n, nb
 - 💞️ I’m looking to collaborate on twitter and instal;dqs
 - 📫 How to reach me now,hkjlnb,;
