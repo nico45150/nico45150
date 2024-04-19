@@ -2,7 +2,7 @@
 - 👀 I’m interested in chiken cusined poulmaf;,:
 - 🌱 I’m currently learning ,;,n, nb
 - 💞️ I’m looking to collaborate on twitter and instal;dqs
-- 📫 How to reach me now,hkjlnb,;
+- 📫 How to reach me now,hkjlnb,;dfs
 - 😄 Pronouns: poulet ma gtrkjl ffnkljk;
 - ⚡ Fun fact: i love burger and chips er
 :=
