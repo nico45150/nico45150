@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @nico45150 , im student
+- 👋 Hi, I’m @nico45150 , im studentsdfedghfg
 - 👀 I’m interested in chiken cusined poulmaf;,:;,:=
 - 🌱 I’m currently learning ,;,n, nb
 - 💞️ I’m looking to collaborate on twitter and instal;dqs
