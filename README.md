@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ,;,n, nb
 - 💞️ I’m looking to collaborate on twitter and instal;dqs
 - 📫 How to reach me now,hkjlnb,;dfscvbgf
-- 😄 Pronouns: poulet ma gtrkjl ffnkljk;
+- 😄 Pronouns: poulet ma 
 - ⚡ Fun fact: i love burger and chips er
 :=
 <!---
