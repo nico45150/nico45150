@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @nico45150 , im studentsdfedghfg
 - 👀 I’m interested in chiken cusi
-- 🌱 I’m currently learning ,;,n, nbgg
+- 🌱 I’m currently learning ,;,n, nbggfvf
 - 💞️ I’m looking to collaborate on twitter and instal;dqs
 - 📫 How to reach me now,hkjlnb,;dfscvbgf
 - 😄 Pronouns: poulet ma 
