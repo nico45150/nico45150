@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning
 - 💞️ I’m looking to collaborate on twitte
 - 📫 How to reach me now
-- 😄 Pronouns: poulet ma 
+- 😄 Pronouns: satoshiit tu as capté houuuuu
 - ⚡ Fun fact: i love burger and chips 
 
 <!---
