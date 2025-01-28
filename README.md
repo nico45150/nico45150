@@ -2,7 +2,7 @@
 - 👀 I’m interested in chiken because i love cook 
 - 🌱 I’m currently learning
 - 💞️ I’m looking to collaborate on twitte
-- 📫 How to reach me now,hkjlnb,;dfscvbgf
+- 📫 How to reach me now
 - 😄 Pronouns: poulet ma 
 - ⚡ Fun fact: i love burger and chips 
 
