@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning and smask burgerrr
 - 💞️ I’m looking to collaborate on twitter 
 - 📫 How to reach me nowwwbn,f
-- 😄 Pronouns: satoshiit tu as capté houuuuuhn,n,njkvfred
+- 😄 Pronouns: satoshiit tu as capté houuuuuhn,n,njkvfredgvff
 - ⚡ Fun fact: i love burger and chips jhbbnfrfff
 bnhbjhjbvn f
 <!---n,
