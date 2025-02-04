@@ -5,7 +5,7 @@
 - 📫 How to reach me nowwwbn,
 - 😄 Pronouns: satoshiit tu as capté houuuuuhn,n,njkvfred
 - ⚡ Fun fact: i love burger and chips jhbbnfrfff
-bnhbjhjbvn 
+bnhbjhjbvn f
 <!---n,
 nico45150/nico45150 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
