@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on twitter 
 - 📫 How to reach me nowwwbn,
 - 😄 Pronouns: satoshiit tu as capté houuuuuhn,n,njkvfred
-- ⚡ Fun fact: i love burger and chips jhbbnfr
+- ⚡ Fun fact: i love burger and chips jhbbnfrf
 bnhbjhjbvn 
 <!---n,
 nico45150/nico45150 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
