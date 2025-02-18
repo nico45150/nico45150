@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @nico45150 , im students in math and informatiqueee
 - 👀 I’m interested in chiken because i love cooking
 - 🌱 I’m currently learning and smask burgerncv
-- 💞️ I’m looking to collaborate on twitter bn
+- 💞️ I’m looking to collaborate on twitter bnjk
 - 📫 How to reach me nowwwbn,fk
 - 😄 Pronouns: satoshiit tu as capté
 - ⚡ Fun fact: i love burger and chips
