@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on twitter bnjkjn
 - 📫 How to reach me nowwwbn,fkhjkn,jkkj,;
 - chjkerjk
-- 😄 Pronouns: satoshiit tu as captéj,k
+- 😄 Pronouns: satoshiit tu as captéj,kn
 - ⚡ Fun fact: i love burger and chips
 
 <!---
