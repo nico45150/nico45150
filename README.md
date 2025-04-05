@@ -2,7 +2,7 @@
 - 👀 I’m interested in chiken because i love cookingdc
 - 🌱 I’m currently learning and smask burgerncvk,,;jjjkljkkj
 - 💞️ I’m looking to collaborate on twitter 
-- 📫 How to reach me cvcvfrjj
+- 📫 How to reach me cvcvfrjjf
 - 😄 Pronouns: satoshiit tu as captéj;jkj
 - ⚡ Fun fact: i love burger and chips
 ff
