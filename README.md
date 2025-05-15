@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning and smask burger,;fjGngvddfvc
 - 💞️ I’m looking to collaborate on twitter ,jcc
 - 📫 How to reach me ,k
-- 😄 Pronouns: satoshiit tu as captéc
+- 😄 Pronouns: satoshiit tu as captécc
 - ⚡ Fun fact: i love burger and chipsc
 ff
 <!---
