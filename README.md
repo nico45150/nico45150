@@ -5,7 +5,7 @@
 - 📫 How to reach me ,k
 - 😄 Pronouns: satoshiit tu as captécc
 - ⚡ Fun fact: i love burger and chipscc
-ff
+ffc
 <!---
 nico45150/nico45150 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
