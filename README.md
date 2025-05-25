@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @nico45150 , im students in math and informatiqueeec
 - 👀 I’m interested in chiken because i love cookingdjc
-- 🌱 I’m currently learning and smask burger,;rrdjd
+- 🌱 I’m currently learning and smask burger,;rrdjdn
 - 💞️ I’m looking to collaborate on twitter ,jjvv
 - 📫 How to reach me ,j
 - 😄 Pronouns: satoshiit tu as captécc
