@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @nico45150 , im students in math and informatiqueeec
-- 👀 I’m interested in chiken because i love cooking;kc
+- 👀 I’m interested in chiken because i love cookingf
 - 🌱 I’m currently learning and smask burgerjf
 - 💞️ I’m looking to collaborate on twitter k
 - 📫 How to reach me jgf
