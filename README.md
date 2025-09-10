@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @nico45150 , im students in math and informatiquej
+- 👋 Hi, I’m @nico45150 , im students in math and informatique
 - 👀 I’m interested in chiken because i love cooking
 - 🌱 I’m currently learning and smask burger,
 - 💞️ I’m looking to collaborate on twitter
