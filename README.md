@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning and smask burger,
 - 💞️ I’m looking to collaborate on twitter,
 - 📫 How to reach me ,
-- 😄 Pronouns: satoshit
+- 😄 Pronouns: satoshitt
 - ⚡ Fun fact: nada ,
 <!---
 nico45150/nico45150 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
